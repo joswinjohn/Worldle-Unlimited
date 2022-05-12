@@ -1,0 +1,2 @@
+# Worldle-Unlimited
+bad
